@@ -15,7 +15,7 @@
         ""
     ],
     "eventDisabled": [],
-    "BOTOWNER": "Zeeshan Altag",
+    "BOTOWNER": "marinakhan",
     "OWNERLINK": "https://www.facebook.com/profile.php?id=zeeshanofficial01",
     "OWNERID": "100009593303125",
     "BOTCREATOR": "Zeeshan Altaf",
