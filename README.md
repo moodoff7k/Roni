@@ -1,23 +1,23 @@
 # ZeeshanBot008
 ## learn for beginners
 
-## how to make facebook messenger chat bot find my youtube channel (zeeshan altaf tricks) i have upload complete abc for messenger chat bot
+## how to make facebook messenger chat bot find my youtube channel (miya bhai tricks) i have upload complete abc for messenger chat bot
 
 ## _____YOUTUBECHANNEL LINK____💕
 
-## [https://youtube.com/@zeeshanaltaftricks184]
+## ]
 
 ## _______INSTAGRAM LINK______🥰
 
-## [https://www.instagram.com/zeeshanaltafofficial]
+## [https://www.instagram.com/moodoff742168?igsh=MWlwY3hqZDV0b2l1cQ==]
 
 ## _____FACEBOOK ID LINK______🍫
 
-## [https://www.facebook.com/zeeshanofficial01?mibextid=ZbWKwL]
+## [https://www.facebook.com/o.o.mood.off.miyabhai.o.o.o.i]
 
 ## ______FACEBOOK PAGE LINK_____🥀
 
-## [https://www.facebook.com/profile.php?id=100084918883783&mibextid=ZbWKwL]
+## [https://www.facebook.com/profile.php?id=61580117956526]
 
 ## ____WHATSAPP GROUP LINK____😍
 
